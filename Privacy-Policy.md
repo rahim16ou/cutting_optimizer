@@ -64,4 +64,4 @@ Contact Us
 
 If you have any questions or suggestions about our Privacy Policy, feel free to contact us:
 
-📧 Email: allinonecode0@gmail.com
+📧 Email: allinonecode0@gmail.com 

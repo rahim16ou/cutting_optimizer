@@ -1,5 +1,4 @@
-Privacy Policy
-Introduction
+
 
 Our privacy policy will help you understand what information we collect at Cutting Optimizer, how we use it, and what choices you have.
 
